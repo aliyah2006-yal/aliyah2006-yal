@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning react and typscript
 - 💞️ I’m looking forward to know more about tech and getting new grad jobs referrals and positions.
 - 📫 How to reach me: Email:aliyahanifowoshe@gmail.com. phone:289-933-5363. linkedin:https://www.linkedin.com/in/aliyah-anifowoshe-520343315/
-- 😄 Pronouns: ...
+- 😄 Pronouns:SHE
 - ⚡ Fun fact: I love meeting/interacting with people and i love learning new things.
 - The human brain generates enough electricity to power a small light bulb, even when you're asleep.
 - MY FAVOURITE QUOTE: 
